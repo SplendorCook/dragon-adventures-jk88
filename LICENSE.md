@@ -1,4 +1,4 @@
-#  
+#  Experience dragon adventures like never before with rare Scripts for dragon adventures, the #1 Script. Includes one-hit kill and speed for unbeatable
 
 
 
